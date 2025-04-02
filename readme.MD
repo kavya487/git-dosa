@@ -1,4 +1,7 @@
 # Dosa
 
 * dosa flour
- * light oil added
+ * karam
+ * oil
+ *fin ally dosa prepared 
+
